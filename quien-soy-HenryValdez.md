@@ -1,4 +1,4 @@
-# Con-cete-para-avanzar
+# Conocete-para-avanzar
 ✍️ Parte 1: Carta a mí mismo
 
 ¿Qué deseo lograr en mi vida personal y profesional?
